@@ -1,0 +1,7 @@
+Journey 
+
+I’ve always wanted to work in the tech sector, but growing up poor I never could figure out how to get the education required to break into the field. I sent most of my adult life working pedestrian jobs, and one day, after a minor financial emergency caused me to loose my job, I decided to check out coding schools. I needed something that would work with my schedule, part time, and affordable. Lambda was the only option at the time that worked with my needs, and had a relevant curriculum based on current tech demands. My education in Reactjs, and node, give me the options to work in many fields of web and app development. From there, I intend to learn Unreal and transition into game development, as that will allow me to combine my artistic skills, and my tech skills into a single career. 
+
+Linkedin network
+
+Unfortunately, I’m just not ready for this yet. I intentionally left this explanation out of my last assignment, for personal reasons, but I can’t financially afford to network right now. I’m unemployed, and money is extremely tight at the moment. It would cost around $30 to meet someone in Seattle for coffee, on the cheap end. Right now, that is a lot of money to me. I know from experience that opening lines of communication with people when you’re not ready to act on it, is wasted effort, and wasted opportunity. That’s why I’ve chosen to focus on my portfolio first. That’s progress I can make at home, for no co

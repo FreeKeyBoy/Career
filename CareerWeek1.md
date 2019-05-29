@@ -1,0 +1,7 @@
+For the first careers assignment I’m having trouble narrowing down the job search possibilities. I live near Seattle, so there are a lot of possibilities. Google, Facebook, Amazon, & Microsoft are the big ones. But with my skill set, and interests, I’m more interested in companies like Nintendo, X-Box, Pop Cap Games, Big Fish, & any number of game based start ups in the area. That doesn’t include the option of working remotely. 
+
+From my research, I found that the big gigs, Amazon, Facebook, and such, tend not to consider applicants with less than four years experience. Given the amount of options available to me in my area, I’ve decided it would be best to set my sights smaller, and work my way up.  
+
+My Linkedin is in its earliest phases right now. It’s very plain right now. I decided to focus first on my portfolio. Because my experience is lacking, and my focus is on UX/UI, I wanted my portfolio to put my best foot forward, and as such it will require the most attention, when compared to my resume, and Linkedin. As it stands right now, My portfolio is about 75% completed. Or at least as complete as I want to make it before I begin showing it to potential employers. I have a feeling I’ll be working on it for a year or so before I consider it 100% done. But as far as getting it out in front of people, My goal is to have it ready within seven days. 
+
+After my portfolio is deployed, then I will work on my Linkedin profile, and begin trying to make connections with some of the smaller scale companies in the Seattle a
